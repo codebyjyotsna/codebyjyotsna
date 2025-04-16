@@ -1,4 +1,4 @@
-👩‍💻 **Hey there! I'm Jyostna Thakur**  
+👩‍💻 **Hey there! I'm Jyotsna Thakur**  
 🎓 2rd-year Computer Science Engineering student  
 📍 Currently decoding life at Amity University Mumbai
 🌟 Passionate about tech, problem-solving & building cool stuff
